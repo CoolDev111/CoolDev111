@@ -3,6 +3,6 @@ I'm a programmer that makes trash for everyone to enjoy.<br>
 <br>
 Don't expect updates for everything.<br>
 <br>
-I also exist on Discord if you want to dm me about something [here](https://discord.com/users/819445627736948746)
+I also exist on Discord if you want to dm me about something [here](https://discord.com/users/819445627736948746)<br>
 <br>
 Not much else to say lol.<br>
