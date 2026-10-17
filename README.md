@@ -1,4 +1,4 @@
 What's good?<br>
-I make trash for everyone to enjoy.<br>
+I'm a programmer that makes trash for everyone to enjoy.<br>
 Don't expect updates for everything.<br>
-Nothing else to say.<br>
+Not much else to say.<br>
